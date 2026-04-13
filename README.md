@@ -94,8 +94,7 @@ To exercise these rights, please contact us at the email address provided below.
 
 If you have any questions or concerns about this Privacy Policy or our practices regarding children's privacy, please contact our Data Protection Officer at:
 
-**Email**: [Your Contact Email Here]  
-**Website**: [https://littlemind-ai.app](https://littlemind-ai.app)  
+**Email**: jabhijeet@gmail.com 
 
 ---
 
